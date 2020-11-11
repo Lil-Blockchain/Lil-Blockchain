@@ -3,5 +3,5 @@
 I'm interested in:
 
 - 🤖  automating jobs
-- 🔭  expanding our consciousness
+- 🔭  expanding consciousness
 - 🌍  rethinking society
