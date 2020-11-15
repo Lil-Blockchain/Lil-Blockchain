@@ -2,6 +2,6 @@
 
 I'm interested in:
 
-- 🤖  automating jobs
-- 🔭  expanding consciousness
-- 🌍  rethinking society
+- 🤖   automating jobs
+- 🔭   expanding consciousness
+- 🌍   rethinking society
